@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Eehanee Hettiarachchi
+- 👀 I worked as a Deposit officer as well as a Customer Service officer in CDB Finance.
+- 🌱 I’m currently Studying Information Technology in SLIIT.
